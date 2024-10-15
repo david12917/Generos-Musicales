@@ -26,3 +26,9 @@ El rapero canadiense aparece como colaborador en una canción del nuevo disco de
 **Xavi, cantante de corridos tumbados, ignorando a sus fans**
 
 El cantante de 'La Diabla' fue captado llegando a un lugar donde lo esperaban unos fanáticos a los cuales ignoró a pesar de que llevaban cartulinas con mensajes para el famoso.
+
+## referencias
+
+1-https://es.wikipedia.org/wiki/Corridos_tumbados
+2-https://www.elcolombiano.com/cultura/musica/corridos-tumbados-el-fenomeno-de-este-genero-musical-mexicano-LB23660865
+3-https://www.bbc.com/mundo/noticias-65404545
